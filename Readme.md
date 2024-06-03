@@ -1,0 +1,1 @@
+### %USERPROFILE%\AppData\Roaming\Goldberg SocialClub Emu Saves\RDR2
